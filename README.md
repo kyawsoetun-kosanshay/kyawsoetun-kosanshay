@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kyawsoetun-kosanshay
-- 👀 I’m interested in BUsiness IT and Marketing
+- 👀 I’m interested in Business IT and Marketing
 - 🌱 I’m currently learning Business IT and Digital Marketing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
